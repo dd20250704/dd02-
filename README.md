@@ -16,6 +16,6 @@
 
 界面简洁、分类清晰、多设备支持的优质平台，能提升用户体验。总结，强调平台合法性、安全性和高清质量，有助于提高搜索排名和用户信任。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd20250704/dd02- ）</span>
 
 
